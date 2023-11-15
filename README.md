@@ -4,9 +4,13 @@
 
 ## 三月七机场简介
 
-三月七的拥有多条动态IP家宽线路，这意味着我们提供的IP具有高纯净度，可以尽情使用Tiktok、Facebook、Netflix等需要原生IP的应用，同时解锁各类AI平台，如ChatGPT、Midjourney、Adobe PS Ai beta版等，加上IPLC专线的加持，给您带来极致的速度和全平台流媒体解锁。
+三月七是可莉副站，定位高质量IPLC专线+家宽机场.
 
-三月七采用SS协议，所有套餐只有流量差异，节点数量没有差异，不建议将本站节点用于游戏加速，流媒体解锁以奈飞为标准，其他平台会尽量但不保证解锁，非大陆用户只能使用部分节点，本站节点会不定时变动，请您经常更新订阅以确保使用最新节点。
+解锁Netflix、Disney+、DMM、动画疯、Hulu、Abema、Niconico、HBO等众多流媒体平台.
+
+支持ChatGPT、Tiktok直播、Facebook注册、Shopee、Temu、SHEIN等电商平台.
+
+适用于各类海外业务，跨境电商、社交文娱等.
 
 ## 三月七优惠码
 
