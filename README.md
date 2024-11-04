@@ -1,6 +1,6 @@
 # 三月七机场官网地址
 
-最新地址：[三月七.com](https://8.syq.tw/#/register?code=yUxDiHtC)
+最新地址：[三月七.com](https://9.syq.tw/#/register?code=yUxDiHtC)
 
 ## 三月七机场简介
 
